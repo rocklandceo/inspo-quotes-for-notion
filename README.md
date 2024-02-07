@@ -1,0 +1,1 @@
+# inspo-quotes-for-notion
